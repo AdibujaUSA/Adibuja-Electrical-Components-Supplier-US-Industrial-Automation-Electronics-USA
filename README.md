@@ -1,10 +1,10 @@
-# Adibuja Electrical Components Supplier US | Industrial & Automation Electronics USA
+# Adibuja | Marketplace for Electrical Components Supplier US | Industrial & Automation Electronics USA
 
 Discover a trusted **electrical components supplier US** offering a wide range of **automation electronics USA**, **networking accessories online USA**, and precision parts for all your industrial and professional needs. Shop from our extensive catalog including **electronic control systems**, **digital meters**, **microcontrollers**, and more — all sourced from top manufacturers with fast nationwide delivery.
 
 ---
 
-## Comprehensive Electronics & Industrial Automation Supplier USA
+## Comprehensive Electronics & Industrial Automation USA
 
 We provide everything from **electrical panels USA** and **AC/DC adapters online USA** to **programmable logic controllers USA** and **electronic enclosures USA**, ensuring your projects and facilities run smoothly with quality components.
 
